@@ -11,7 +11,10 @@ Since February 2025, I have been enrolled in a Master's program in Computer Scie
 
 ### 🌱 Looking for a job! 
 I am interested in a position where I will be able to utilize and expand my skills, grow and do interesting things! <br>
-For any and all related contact, please 📧 me at leonmac365@icloud.com
+For any and all related contact, please:
+- 📧 Email me at leonmac365@icloud.com
+- 🔗 Visit my <a href="www.linkedin.com/in/leon-mac-987945273">LinkedIn</a>
+
 
 #
 ### My skills
